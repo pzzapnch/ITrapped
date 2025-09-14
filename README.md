@@ -6,7 +6,9 @@
 
 i use **SHE/HE** pronouns.
 I go by Elliot or *ITrapped* tho, i dont talk too much because i am kinda shy.
+
 <img width="99" height="56" alt="17578685958348676397814335078898" src="https://github.com/user-attachments/assets/023c6fcb-481b-4bef-a740-f4230c041e20" />
+
 **MULTIFANDOM**
 
 ![17578672184247048030465020060613](https://github.com/user-attachments/assets/57ddd19f-ce65-45f3-94f4-4b71d9379638)
