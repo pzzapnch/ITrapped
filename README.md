@@ -6,7 +6,7 @@
 
 i use **SHE/HE** pronouns.
 I go by Elliot or *ITrapped* tho, i dont talk too much because i am kinda shy.
-
+<img width="99" height="56" alt="17578685958348676397814335078898" src="https://github.com/user-attachments/assets/023c6fcb-481b-4bef-a740-f4230c041e20" />
 **MULTIFANDOM**
 
 ![17578672184247048030465020060613](https://github.com/user-attachments/assets/57ddd19f-ce65-45f3-94f4-4b71d9379638)
@@ -45,6 +45,6 @@ Mafioso = iwc + **HEAVY** c+h
 
 Spawnist/Spawnism = *dni*
 # PONY TOWN
-also feel always **FREE** to c+h me! And please, before you talk to me, **W2I**! Also, i dont mind if you dont like interact, its okay! ^^
 ![17578685529139026239547564405596](https://github.com/user-attachments/assets/bb045310-6f69-48bb-8408-d7eb45c4464e)
-<img width="99" height="56" alt="17578685958348676397814335078898" src="https://github.com/user-attachments/assets/023c6fcb-481b-4bef-a740-f4230c041e20" />
+also feel always **FREE** to c+h me! And please, before you talk to me, **W2I**! Also, i dont mind if you dont like interact, its okay! ^^
+<img width="640" height="640" alt="17578726767045385049153742412465" src="https://github.com/user-attachments/assets/913f83a0-14b7-4bc0-84be-8ed964ed7ba3" />
