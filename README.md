@@ -33,9 +33,7 @@ I go by Elliot or *ITrapped* tho, i dont talk too much because i am kinda shy.
 
 Doublefedora = **HEAVY** dni
 
-Paycheck (Elliot x Chance) and 
-
-Pizzaburger (Elliot x 007n7) = Dni
+Paycheck (Elliot x Chance) and Pizzaburger (Elliot x 007n7) = Dni
 
 Chance (**mains**) = **IWC**
 
