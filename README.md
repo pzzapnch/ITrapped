@@ -1,6 +1,8 @@
 # ABOUT ME!
 <img width="640" height="625" alt="17578668929248008542377763513941" src="https://github.com/user-attachments/assets/20922d43-6e9b-4084-bdd1-6db8ea7f9ed2" />
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tozkcxl2f5kjnun63lbz5i75ie&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=8159b5&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 ![17578673998957352445564454537992](https://github.com/user-attachments/assets/ea2b65a3-f9a9-4a96-942e-1761b72b67f1)
  Aye! Aye, everyone! Okay, so uhm my name is Clarice (irl)! I like to draw, *sleep*, purple, and my friends!^^
 
